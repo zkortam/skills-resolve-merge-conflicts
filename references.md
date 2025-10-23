@@ -1,3 +1,3 @@
 # References
 
-* We will be the greatest country on earth
+* We will be the greatest country on earth.
