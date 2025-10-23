@@ -1,3 +1,3 @@
 # References
 
-* octocat 1 😈
+* We will be the greatest country on earth.
